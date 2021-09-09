@@ -1,3 +1,7 @@
 # Contributors
 A list of contributors to the project
-Josh "Gamer" Jankowski
+- Nick Brown
+- Jake Savitt (Treasurer!) Change da world My final message. GOODBYE
+- Maeve Rositzke
+- Josh Caskie
+- Josh "Gamer" Jankowski
